@@ -1,2 +1,0 @@
-# Eaglercrackresentclient
-MID
